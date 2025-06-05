@@ -1,0 +1,1 @@
+# Talleres-Vision-Cumputador-MCDA-2025
